@@ -1,0 +1,1 @@
+Kristers Greidiņš - Pašvērtējums: slikts, nepratu izrisināt lielāko daļu uzdevumu un to kodus.
